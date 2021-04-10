@@ -1,3 +1,3 @@
 # Benjamin_J_W21Portfolio.github.io
-# Website at:
+# Take a look at my portfolio below:
 https://benjenkynstudent.github.io/Benjamin_J_W21Portfolio/
